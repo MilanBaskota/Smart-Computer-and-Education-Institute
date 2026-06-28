@@ -1,1 +1,1 @@
-# Smart-Computer-and-Education-Institute
+# Smart Computer & Education Institute
